@@ -1,3 +1,3 @@
 # Women Who Code Digital Communities
 
-More information coming soon!
+More information will be coming soon!
